@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **sabu.laukkanen@gmail.com**
 
-- ⚡ Fun fact **i am good looking and very good at the sex**
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
